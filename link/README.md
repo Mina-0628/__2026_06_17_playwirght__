@@ -9,3 +9,8 @@ https://www.youtube.com/watch?v=RUfMVH4yOzo
 https://www.youtube.com/watch?v=apDZWllxigM
 
 ---
+
+## 2026_06_24_晚上
+https://www.youtube.com/watch?v=ZTRQ1rrjWt4
+
+---
